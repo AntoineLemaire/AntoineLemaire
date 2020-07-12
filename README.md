@@ -1,3 +1,5 @@
-[![Antoine Lemaire.](https://i.imgur.com/9mo1Aro.png)](https://bouffe.io)
-
-I code, and I love it. That's simple ⌨
+NO MATTER THE BUGS  
+NO MATTER THE ISSUES  
+NO MATTER WHAT  
+  
+**K33P C0D1NG**
